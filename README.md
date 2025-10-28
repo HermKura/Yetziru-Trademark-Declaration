@@ -1,0 +1,1 @@
+# Yetziru-Trademark-Declaration
