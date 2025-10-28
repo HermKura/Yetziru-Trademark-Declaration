@@ -21,7 +21,7 @@ Yetziru™ is a distinctive brand name used in connection with the following fie
   - Ludology (Game Studies)
   - Mathematical Physics
   - Interdisciplinary Sciences
-- 🕹️ **eSports Organization and Management**
+- 🕹️ **eSports Participation**
 - 📺 **Digital Content Creation and Streaming**
 - 📚 **Printed Materials** including academic publications, manuals, and educational resources related to research and gaming
 
